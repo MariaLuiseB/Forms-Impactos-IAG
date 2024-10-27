@@ -1,3 +1,3 @@
 ### 📩 Inteligência Artificial Generativa no Ensino Superior
-[Formulário](https://forms.gle/85M8vJGHKPVKtAjbA)
-
+[Acesse o formulário aqui](https://forms.gle/85M8vJGHKPVKtAjbA)
+[Acesse o PDF do formulário aqui](pdf-form.pdf)
