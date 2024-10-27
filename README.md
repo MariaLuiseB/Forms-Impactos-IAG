@@ -1,3 +1,2 @@
-# 📩 FORMULÁRIO DOS IMPACTOS DA INTELIGÊNCIA ARTIFICIAL GENERATIVA NO PROCESSO DE APRENDIZADO DE ESTUDANTES NO ENSINO SUPERIOR EM BARRA DO GARÇAS - MT.
-
-[Formulário do Google]([https://link_do_formulario_google.com](https://forms.gle/85M8vJGHKPVKtAjbA))
+### 📩 Inteligência Artificial no Ensino Superior
+[Formulário do Google]([https://link_do_formulario_google.com](https://forms.gle/85M8vJGHKPVKtAjbA)
